@@ -1,1 +1,1 @@
-# rollingstone-cover-story-timothee-chalamet
+https://shoneal.github.io/rollingstone-cover-story-timothee-chalamet/
